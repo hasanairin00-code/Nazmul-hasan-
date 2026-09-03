@@ -1,2 +1,1 @@
-# Nazmul-hasan-
-QW-HAQRSA
+# Nazmul-hasan
